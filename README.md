@@ -1,0 +1,2 @@
+# 6573b8cb-9797-4679-808e-07d35348a843-hero-2
+Hero section variant 2 for 6573b8cb-9797-4679-808e-07d35348a843
